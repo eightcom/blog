@@ -1,1 +1,7 @@
 # blog
+
+
+
+
+
+# chung yong gil
